@@ -7,9 +7,7 @@
 
 
 
-维护收集不易，各位看官高兴可打赏下~
 
-![image](https://user-images.githubusercontent.com/15306294/125604796-955a078a-0e28-4900-9a1c-6fabdc8feb7d.png)
 
 
 ## Special statement:
